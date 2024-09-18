@@ -1,2 +1,3 @@
 ###  WINTER IS COMMING .
-![wp2652291-wallpaper-minecraft-hd](https://github.com/qqwqqw689/qqwqqw689/assets/114795525/0b0f3b08-7ba8-48ba-8cd0-142359bcfce0)
+<img width="587" alt="1c8cda0099ed8ccff6c32fad8baaeee" src="https://github.com/user-attachments/assets/21646d0c-a30f-47af-9df3-2474cc9f7245">
+
