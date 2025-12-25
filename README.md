@@ -1,3 +1,4 @@
 ###  WINTER IS COMED .
-<img width="587" alt="1c8cda0099ed8ccff6c32fad8baaeee" src="https://github.com/user-attachments/assets/21646d0c-a30f-47af-9df3-2474cc9f7245">
+<img width="1046" height="799" alt="443781b268550e6391181763b8498ff3" src="https://github.com/user-attachments/assets/73e608a4-df90-45e4-b909-83d3bc3c8e45" />
+
 
